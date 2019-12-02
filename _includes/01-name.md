@@ -1,1 +1,4 @@
-# Chukwuwa Uchenna Francis Android Developer
+# Chukwuwa Uchenna Francis
+## Android Developer
+### Lover of the android framwork
+#### A fun guy to have around
